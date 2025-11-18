@@ -1,0 +1,2 @@
+Infrastructuren zijn relationele, politieke systemen van onderliggende dingen.
+Infrastructuur doet eigenlijk altijd meer dan waar het voor gemaakt is, zoals extra controle en discipline, het standaardiseert dingen door bepaalde variabelen extra belang toe te kennen. Het creëert nieuwe vormen aan werk en nieuwe problemen (zoals copyrightcontrole door canvas), en het wordt ondanks haar politieke natuur niet vaak gepolitiseerd.
