@@ -2,4 +2,4 @@ Het ontwerp van de Frankfurter keuken creëerde een barrière tussen de keuken e
 
 De keuken is een infrastructuur van gegenderde machtsrelaties under kapitalisme.
 
-Slavernij was een ongendering, lichaam werd vlees en enkel een kwantitatief nummer.
+Slavernij was een ontgendering, lichaam werd vlees en enkel een kwantitatief nummer.
