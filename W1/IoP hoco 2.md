@@ -8,6 +8,4 @@ Susan Lee Star stelt dat infrastructuren plekken zijn waar geclassificeerd en ge
 
 Infrastructuur als object || Infrastructuur als perspectief
 
-1. In what ways does this infrastructure limit its users?
-
 Wanneer een infrastructuur faalt en hoe die faalt is afhankelijk van het perspectief waarvanuit je de infrastructuur bekijkt. Een pijplijn faalt wanneer hij barst, maar voor een ander is juist het werken ervan een falen (doordat het andere infrastructuren breekt).
