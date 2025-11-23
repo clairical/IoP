@@ -9,4 +9,4 @@ notes are generally in the Dutch language, but I have prefaced my summaries of t
 you feel like I completely misunderstood a point made in a text or a lecture, or if you think I glossed over something that should not have been glossed over, or for whatever other reason,
 feel free to propose changes. If you know git you can simply pull this repo to your markdown editor of choice (I use obsidian), change whatever you like and push it back to the main branch
 (I think I will have to approve it but we'll see); or you can also just use the github website and click the pencil to propose changes. If that is not the vibe for you, you can always reach
-me at clairical(at)pm.me (that is email, to be clear).
+me at clairical(at)pm.me (that is email, to be clear), and I will help you to get your suggestions on the web™.
