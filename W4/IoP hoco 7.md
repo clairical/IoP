@@ -1,0 +1,4 @@
+Een gebeurtenis als 9/11 leidde niet enkel tot islamofobie, maar ook tot een boel think tanks die zich af gingen vragen waarom er in het Midden-Oosten geen populaire democratie was. Het idee waar ze op uit kwamen was dat, door de grote hoeveelheid olie die daar beschikbaar was er toe leidde dat de leiders van de landen geen belasting nodig hadden om hun handelingen te onderbouwen, maar dat ze dat uit hun olie-inkomens haalden; waardoor ze dus geen popular support nodig hadden voor hun regime. Dit was ook één van de aanleidingen voor de invasie van Irak in 2003.
+Het Midden-Oosten is echter niet de enige plek waar fossiele brandstoffen een belangrijke rol spelen. In de Verenigde Staten en Canada zijn er ook constant conflicten omtrent het extraheren en het vervoeren (via pijplijnen) van voornamelijk olie en gas. 
+
+Ik was niet bij de tweede helft van het hoorcollege ☹️
