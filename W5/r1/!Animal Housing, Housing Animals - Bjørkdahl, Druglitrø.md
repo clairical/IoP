@@ -1,0 +1,1 @@
+De dingen die mensen doen met dieren kunnen niet gebeuren zonder de bijbehorende onderliggende fysieke infrastructuren. 
