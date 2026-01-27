@@ -1,8 +1,8 @@
 > [!info] Deze samenvatting is nogal een bende, maar ik had heel veel moeite om in de paper een duidelijke draad te identificeren. De auteur springt constant van onderwerp naar onderwerp zonder eerdere onderwerpen tot haar eind uit te werken, en herhaalt ook genadeloos de hele tijd wat er eerder al genoemd is. Misschien dat het nut heeft om sectie IV, een soort conclusie, te lezen als je hier niet veel van bakt/iets meer context wil (pp. 384-385). -*C*
 
->[!abstract] Wat
+>[!abstract] The passport has always been a way to reproduce colonial relations. It is a method to discriminate people based on race, without the need to use the word "race". After all, you simply talk about what passport someone has, and not about a feature of that person themselves.
 
->[!abstract]
+>[!abstract] Het paspoort is altijd al een middel geweest om coloniale relaties te reproduceren. Het is een manier om mensen te discrimineren op ras, zonder dat het woord "ras" gebruikt hoeft te worden. Je hebt het immers simpelweg over welk paspoort iemand heeft, en niet over een eigenschap van die persoon zelf.
 
 Tot het begin van de 20e eeuw hadden mensen geen paspoort als in de huidige vorm nodig om tussen verschillende landen te reizen. Het moderne paspoortsysteem werd voor het eerst toegepast als noodmaatregel tijdens de eerste wereldoorlog. Na de oorlog werd dit systeem echter niet opgeheven, maar juist verder uitgebreid.[^1] Dit ging tezamen met de opkomst van de natiestaat, waarbij een paspoort een methode was om insiders en outsiders van elkaar te differentiëren.
 
